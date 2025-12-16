@@ -27,13 +27,12 @@ Add honey or dates if desired.
 
 Suitable for daily consumption.
 Naturally Contains: Fiber • Plant-Based Protein • Essential Minerals
-Clean Label Promise
-No artificial flavors
-No added sugar
-No preservatives
+
+Clean Label Promise / No artificial flavors / No added sugar / No preservatives
 
 A Simple Spoon. A Powerful Tradition.
 
 Batch No: NAF-240915-01
+
 Scan QR for product information
 <img width="1024" height="1024" alt="ChatGPT Image Dec 16, 2025, 09_43_44 PM" src="https://github.com/user-attachments/assets/f2701d00-d9e9-4981-a8c5-86fd03840d07" />
