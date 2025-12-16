@@ -34,5 +34,6 @@ A Simple Spoon. A Powerful Tradition.
 
 Batch No: NAF-240915-01
 
-Scan QR for product information
-<img width="1024" height="1024" alt="ChatGPT Image Dec 16, 2025, 09_43_44 PM" src="https://github.com/user-attachments/assets/f2701d00-d9e9-4981-a8c5-86fd03840d07" />
+
+<img width="1000" height="1000" alt="qr-negareno-760545" src="https://github.com/user-attachments/assets/1dd60711-ee47-404d-96c1-e0a7d8ebaf0d" />
+
