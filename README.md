@@ -2,17 +2,24 @@
 Ancient Nutrition for Modern Life
 
 100% Natural Roasted Grains
+
 Inspired by Islamic Tradition
+
 Pure • Simple • Nourishing
+
 What is Nafaa?
+
 Nafaa is a traditional Islamic superfood made from gently roasted natural grains.
+
 It has been valued for centuries as a source of strength, balance, and nourishment.
+
 Why Choose Nafaa?
 • 100% Natural Ingredients
 • Rich in Natural Energy
 • Easy to Digest
 • No Preservatives or Additives
 • Inspired by Prophetic Nutrition
+
 How to Use
 Mix one to two spoons with warm milk or water.
 Add honey or dates if desired.
