@@ -35,5 +35,5 @@ A Simple Spoon. A Powerful Tradition.
 Batch No: NAF-240915-01
 
 
-<img width="1000" height="1000" alt="qr-negareno-760545" src="https://github.com/user-attachments/assets/1dd60711-ee47-404d-96c1-e0a7d8ebaf0d" />
+<img width="500" height="500" alt="qr-negareno-760545" src="https://github.com/user-attachments/assets/1dd60711-ee47-404d-96c1-e0a7d8ebaf0d" />
 
