@@ -1,4 +1,4 @@
-# Nafaa
+# AL Bayt
 Ancient Nutrition for Modern Life
 
 100% Natural Roasted Grains
@@ -7,9 +7,9 @@ Inspired by Islamic Tradition
 
 Pure • Simple • Nourishing
 
-What is Nafaa?
+What is AL Bayt?
 
-Nafaa is a traditional Islamic superfood made from gently roasted natural grains.
+AL Bayt is a traditional Islamic superfood made from gently roasted natural grains.
 
 
 It has been valued for centuries as a source of strength, balance, and nourishment.
